@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am currently a high student student and a learner for coding. 
+I am currently a high student student. 
 
 #### 📫 How to reach me
 
