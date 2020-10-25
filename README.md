@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi 👋
 
 I am currently a high student student. 
 
